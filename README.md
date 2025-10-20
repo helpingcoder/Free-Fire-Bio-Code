@@ -1,6 +1,6 @@
-# 🎯 Free Fire Bio Code Generator
+# 🎯 Free Fire Bio Code Website
 
-Welcome to the **Free Fire Bio Code Generator** – your one-stop tool for creating stylish, colorful, and unique **Free Fire bio codes** for your in-game profile.  
+Welcome to the **Free Fire Bio Code Website** – your one-stop tool for creating stylish, colorful, and unique **Free Fire bio codes** for your in-game profile.  
 
 🔗 **Visit our official site:** [ffbiostyle.com](https://ffbiostyle.com)
 
